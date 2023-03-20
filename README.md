@@ -1,0 +1,1 @@
+# Solucion-mobile-card-Qr-Code
